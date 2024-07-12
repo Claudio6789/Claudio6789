@@ -9,7 +9,7 @@ Meu nome é Claudio Daniel
 
 ## Você pode entrar em contato comigo 📫
 
-cdaniel@_______.com 
+@_______.com 
 
 
 ![](https://media1.tenor.com/m/CklorS0ZlHMAAAAC/naruto-weird-face.gif)
